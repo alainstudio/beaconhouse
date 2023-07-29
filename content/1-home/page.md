@@ -27,17 +27,21 @@ The mission of Beacon House Interfaith Society is to work in a caring and compas
 ## Top 10 item required
 
 1. Boxes Cereal
-2. Canned Stew
-3. Baby food
-4. Diapers
-5. Hygiene Products Male and Female
-6. Mayonnaise
-7. Peanut Free School Snack
-8. Canned Milk
-9. Canned Ham or Chicken
-10. Cookies
+2. Diapers Sizes 4,5,6
+3. Canned Meat
+4. Cannded Stew
+5. Baby food, Jars, Cereal and Formula
+6. Granola Bars
+7. Pudding Cups
+8. Juice
+9. Hygiene Products
+10. School Supplies
 
-Thank you for your donations during this rough time!! 
+* Hygiene produce include: Toothpaste, Toothbrushes, Soap, Razors, Deodorant, Shampoo, Tampons/Pads, shaving cream.
+
+* School Supplies included: Scribblers, coloured pencils, pencils, markers, erasers, glue sticks, crayons, looseleaf, rulers, scissors.
+
+Thank you so much for supporting our food bank! 
 
 ## Bag Days
 
@@ -45,7 +49,7 @@ Thank you for your donations during this rough time!!
 
 Fill a small bag for $14.00 or a large bag for $20.00. Items can include clothing and any articles that are posted on the in-store board that day.
 
-[image bagdays7.jpg BagDays rounded]
+[image bagdays8.jpg BagDays rounded]
 
 
 ## We are a community ran organization

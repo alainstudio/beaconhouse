@@ -7,15 +7,15 @@ Title: Food Bank
 ## Top 10 item required
 
 1. Boxes Cereal
-2. Canned Stew
-3. Baby food
-4. Diapers
-5. Hygiene Products Male and Female
-6. Mayonnaise
-7. Peanut Free School Snack
-8. Canned Milk
-9. Canned Ham or Chicken
-10. Cookies
+2. Diapers Sizes 4,5,6
+3. Canned Meat
+4. Cannded Stew
+5. Baby food, Jars, Cereal and Formula
+6. Granola Bars
+7. Pudding Cups
+8. Juice
+9. Hygiene Products
+10. School Supplies
 
 Thank you for your donations during this rough time!! 
 
