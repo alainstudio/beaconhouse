@@ -6,9 +6,9 @@ Title: Home
 
 <h1 style="text-align: center;">Beacon House</h1>
 
-## Summer Hours
+## NOW ~ OPEN on Saturday
 
-Beacon House will be **CLOSED on Saturdays** for the months of July and August beginning July 1.
+Beacon House ~ Retail Store will be **OPEN on Saturdays** starting 9 September.
 
 <h2 style="text-align: center;">Neighbours Helping Neighbours</h2>
 
@@ -49,7 +49,7 @@ Thank you so much for supporting our food bank!
 
 Fill a small bag for $14.00 or a large bag for $20.00. Items can include clothing and any articles that are posted on the in-store board that day.
 
-[image bagdays8.jpg BagDays rounded]
+[image bagdays9.jpg BagDays rounded]
 
 
 ## We are a community ran organization
