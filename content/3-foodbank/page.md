@@ -6,16 +6,16 @@ Title: Food Bank
 
 ## Top 10 item required
 
-1. Boxes Cereal
-2. Diapers Sizes 4,5,6
+1. Canned Soups
+2. Miracle Whip
 3. Canned Meat
-4. Cannded Stew
-5. Baby food, Jars, Cereal and Formula
-6. Granola Bars
-7. Pudding Cups
-8. Juice
-9. Hygiene Products
-10. School Supplies
+4. Fruit Cups or Cans
+5. Canned Beans or Stew
+6. Boxes Cereal
+7. Granola Bars
+8. Juice Boxes
+9. Pasta Sauce
+10. Diapers / Baby Food
 
 Thank you for your donations during this rough time!! 
 
