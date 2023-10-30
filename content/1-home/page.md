@@ -49,7 +49,7 @@ Thank you so much for supporting our food bank!
 
 Fill a small bag for $14.00 or a large bag for $20.00. Items can include clothing and any articles that are posted on the in-store board that day.
 
-[image bagdays9.jpg BagDays rounded]
+[image bagdays11.jpg BagDays rounded]
 
 
 ## We are a community ran organization

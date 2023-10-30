@@ -10,7 +10,7 @@ PLEASE NOTE: We accept CASH & DEBIT ONLY.
 
 Fill a small bag for $14.00 or a large bag for $20.00. Items can include clothing and any articles that are posted on the in-store board that day.
 
-[image bagdays9.jpg BagDays center]
+[image bagdays11.jpg BagDays center]
 
 
 ### Items in good condition that we CAN accept for donation include:
